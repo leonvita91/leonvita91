@@ -1,4 +1,4 @@
-## I'm a Hardcore Programmer, Networker, Developer, and Tutorial Maker!!
+## I'm a Hardcore Programmer, Networker, Developer, and Tutorials Maker!!
 
 - 🔭 Check out our Channals on Tiktok YouTube:
 - 🌱 I’m currently learning everything 🤣
