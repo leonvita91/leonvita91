@@ -1,7 +1,7 @@
 ## I'm a Hardcore Programmer, Networker, Developer, and Tutorials Maker!!
 
 - 🔭 Check out our Channals on Tiktok YouTube:
-- 🌱 I’m currently learning everything 🤣
+- 🌱 I’m currently learning everything :)
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 2023 Goals: Learn more about merge code together with differents languages.
 - ⚡ Fun fact: I love to build things and play Games / Rainbow Six sege
